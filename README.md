@@ -1,0 +1,1 @@
+For our marketing project during my first year at IE, we had to create a new product, with the primary objective to provide an opportunity to experience building marketing strategies from the perspective of professional marketers. 
