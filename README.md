@@ -1,4 +1,4 @@
-For our marketing project during my first year at IE, we had to create a new product, with the primary objective to provide an opportunity to experience building marketing strategies from the perspective of professional marketers. 
+For our marketing project during my first semester at IE, we had to create a new product, with the primary objective to provide an opportunity for us to experience building marketing strategies from the perspective of professional marketers. 
 
 That is why I thought of creating a new luxury good, as I am very interested in fashion. 
 
